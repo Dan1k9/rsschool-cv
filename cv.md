@@ -1,5 +1,5 @@
 # **Daniel Lange**
-![my pict](https://www.krassever.ru/statics/upload/iblock/f9a/29_1-енот.jpg)
+![my pict](https://pbs.twimg.com/profile_images/619574608874737665/Vc3zorKB_400x400.jpg)
 ## __Contacts:__
 * Email: **drlangin@gmail.com** 
 * Discord: **ldr99#6420**
